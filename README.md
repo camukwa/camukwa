@@ -1,2 +1,2 @@
 ## Hi there 👋
-Hey there, I'm **Camukwa**!👋🏽
+Hey there, I'm **Christian Amukwa**!👋🏽
